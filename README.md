@@ -1,8 +1,5 @@
 # About me
 
 
-**Magician420/Magician420** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 **I’m currently working on** AI powered platform
+**Magician420/Magician420** is a ✨ _special_ ✨ repository because itsADASDDASD `README.md` (this file) appears on your GitHub profile.
+AADSDSADASD
