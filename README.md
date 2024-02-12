@@ -1,5 +1,5 @@
 # About me
 
 
-**Magician420/Magician420** is a ✨ _special_ ✨ repository because itsADASDDASD `README.md` (this file) appears on your GitHub profile.
+**Magician420/Magician420** is a ✨ _special_ ✨ repositoryappears on your GitHub profile.
 AADSDSADASD
